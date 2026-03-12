@@ -1,1 +1,0 @@
-# Test-Your-Knowledge-Mini-Quizzes-Template
